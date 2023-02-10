@@ -1,1 +1,1 @@
-Sou Álvaro  Luiz  Santana  Nunes  estudo dno senai no ensdino médio integrad ao curso de programação de jogos  digitais sou fascinado  por motores, carros antrigos e motos  fã do  Ayrton  Senna  e da serie de filmes  Veloses  e  Furiosos  acho  que  é só :) frango-
+Sou Álvaro  Luiz  Santana  Nunes  estudo no senai no ensdino médio integrado ao curso de programação de jogos  digitais sou fascinado  por motores, carros antigos e motos também fã do  Ayrton  Senna  e da serie de filmes  Velozes  e  Furiosos  acho  que  é só :) 
